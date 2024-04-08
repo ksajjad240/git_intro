@@ -1,1 +1,2 @@
 Khadeeja Sajjad
+sajjadk@oregonstate.edu
